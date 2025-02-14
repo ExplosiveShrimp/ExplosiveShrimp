@@ -1,4 +1,6 @@
 ![](https://64.media.tumblr.com/21e306ef19f702f7a296824a03a8980d/fdeba3923526deaa-48/s1280x1920/9e56b821e2146dc24c28703663f62ab13bf7c176.pnj)
+
+<div align="center">
 <p align="center">
   <img src="https://64.media.tumblr.com/e0a6cd3d604b99fb9b08854878ab946b/fdeba3923526deaa-18/s1280x1920/6836f33526c737439ba4cb505763f47bbac375fe.gifv"width="300" height="
 300" />
@@ -16,7 +18,9 @@
   ⊹₊ ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ ₊⊹
 </p>
   
-  [𝐑entry](https://rentry.co/tunachimi) ؛ ଓ [Strawpage](https://Aizhen.straw.page)
+
+ 〃✦ ┆ [𝐑entry](https://rentry.co/tunachimi) ؛ ଓ [Strawpage](https://Aizhen.straw.page)
+
 
 
 
