@@ -15,6 +15,9 @@
 <p align="center">
   ⊹₊ ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ ₊⊹
 </p>
+  
+  [𝐑entry](https://rentry.co/tunachimi) ؛ ଓ [Strawpage](https://Aizhen.straw.page)
+
 
 
 ![](https://64.media.tumblr.com/15a630009534b2c617340b56b8252842/fdeba3923526deaa-19/s1280x1920/98e7bb86e585a6c1f19d5f450fcfbabfef392b67.pnj)
