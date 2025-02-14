@@ -1,2 +1,20 @@
 ![](https://64.media.tumblr.com/21e306ef19f702f7a296824a03a8980d/fdeba3923526deaa-48/s1280x1920/9e56b821e2146dc24c28703663f62ab13bf7c176.pnj)
-![](https://64.media.tumblr.com/5b4dc84a0ae30aa3a1d3388e90f0e316/fdeba3923526deaa-c5/s1280x1920/488f4a4d507eaf222231285dd298a15755a9c9e6.gifv)
+<p align="center">
+  <img src="https://64.media.tumblr.com/e0a6cd3d604b99fb9b08854878ab946b/fdeba3923526deaa-18/s1280x1920/6836f33526c737439ba4cb505763f47bbac375fe.gifv"width="300" height="
+300" />
+</p>
+<p align="center">
+  ⊹₊ ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ ₊⊹
+</p>
+<p align="center">
+  𝅄    ݁   ⏜ ꒰  @ 𝙇𝙞-𝘾𝙝𝙚𝙣𝙜𝙓𝙞𝙣𝙜 ꒱  ──   ๑   ֹ   ₊ㅤ  ۟
+</p>
+<p align="center">
+  ୭ ˚. ᵎᵎ 𝟭𝟱yo ‧₊˚ ┊ 𝗕𝗶sexual
+</p>
+<p align="center">
+  ⊹₊ ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ ₊⊹
+</p>
+
+
+![](https://64.media.tumblr.com/15a630009534b2c617340b56b8252842/fdeba3923526deaa-19/s1280x1920/98e7bb86e585a6c1f19d5f450fcfbabfef392b67.pnj)
