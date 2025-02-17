@@ -2,8 +2,7 @@
 
 <div align="center">
 <p align="center">
-  <img src="https://64.media.tumblr.com/d03a01226e9ce24d1a018c3542929d7c/ad902a58083ba86c-f6/s500x750/2933429c45168e992963a59eba811bf184be658e.gifv"width="300" height="
-300" />
+  <img src="https://64.media.tumblr.com/d03a01226e9ce24d1a018c3542929d7c/ad902a58083ba86c-f6/s500x750/2933429c45168e992963a59eba811bf184be658e.gifv" width="300" height="300" />
 </p>
 <p align="center">
   ⊹₊ ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ ₊⊹
