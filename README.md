@@ -1,26 +1,24 @@
-![](https://64.media.tumblr.com/f81599512a107bfcc133d2372874ab2f/ad902a58083ba86c-1d/s540x810/5dc3311df65108746f1e0189579e9c3b20bc4d42.gifv)
+<div align="center">
+
+<img src="https://64.media.tumblr.com/648ac3cc850c780ff31520ebfff1ea2e/5a2c3d9eb219bb3d-3a/s2048x3072/21eba5192a863f284b22caa107ca0c27f73e791d.pnj" width="800" height="80" />
 
 <div align="center">
-<p align="center">
-  <img src="https://64.media.tumblr.com/d03a01226e9ce24d1a018c3542929d7c/ad902a58083ba86c-f6/s500x750/2933429c45168e992963a59eba811bf184be658e.gifv" width="300" height="300" />
-</p>
-<p align="center">
+
+<img src="https://64.media.tumblr.com/4ad0823a7298467a45667812095f4b85/a0f08759c9859a94-fd/s400x600/bbdc4a9b99ac6e6248f38b1a998a25be6375c34d.pnj" width="200" height="200" />
+
   ⊹₊ ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ ₊⊹
-</p>
-<p align="center">
-  𝅄    ݁   ⏜ ꒰  @ 𝙇𝙞-𝘾𝙝𝙚𝙣𝙜𝙓𝙞𝙣𝙜 ꒱  ──   ๑   ֹ   ₊ㅤ  ۟
-</p>
-<p align="center">
+
+  𝅄    ݁   ⏜ ꒰  @ 𝙇𝙞-𝘾𝙝𝙚𝙣𝙜𝙓𝙞𝙣𝙜  ***Chimi*** ──   ๑   ֹ   ₊ㅤ  ۟
+
   ୭ ˚. ᵎᵎ 𝟭𝟱yo ‧₊˚ ┊ 𝗕𝗶sexual
-</p>
-<p align="center">
+
   ⊹₊ ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ ₊⊹
-</p>
+
   
 
- 〃✦ ┆ [𝐑entry](https://rentry.co/tunachimi) ؛ ଓ [Strawpage](https://Aizhen.straw.page)
+ 〃✦ ┆ [*Rentry*](https://rentry.co/tunachimi) ؛ ଓ [*Strawpage*](https://Aizhen.straw.page)
 
 
 
 
-![](https://64.media.tumblr.com/7f421d22ec87258a8b3cecafb9ad61cf/ad902a58083ba86c-14/s540x810/eee2f349f623dc70241b00577932c0731b6a452a.gifv)
+<img src="https://64.media.tumblr.com/31aed172e71ebbae988fd95401a4f67b/5a2c3d9eb219bb3d-df/s2048x3072/f466a1e837ca4f620b0006c67da2315a6f64f2e1.pnj" width="800" height="80" />
