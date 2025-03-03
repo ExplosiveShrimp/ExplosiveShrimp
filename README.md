@@ -14,7 +14,7 @@
 
   
 
- 〃✦ ┆ [*Rentry*](https://rentry.co/tunachimi) ؛ ଓ [*Strawpage*](https://Aizhen.straw.page)
+ 〃✦ ┆ [*Rentry*](https://rentry.co/lichengxing) ؛ ଓ [*Strawpage*](https://Aizhen.straw.page)
 
 
 
