@@ -14,7 +14,7 @@
 
   
 
- 〃✦ ┆ [*Rentry*](https://rentry.co/lichengxing) ؛ ଓ [*Strawpage*](https://cxchimi.straw.page/)
+ 〃✦ ┆ [*Rentry*](https://rentry.co/cxchimi) ؛ ଓ [*Strawpage*](https://cxchimi.straw.page/)
 
 
 
