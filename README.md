@@ -18,4 +18,3 @@
 
 
 
-<img src="https://64.media.tumblr.com/c4aba58ae2907d3e37f323d2e2bdb024/013cd7275a81c971-90/s1280x1920/61396d8c6e830fbc10ecc80294b7d8d5ce23161e.pnj" width="600" height="5" />
