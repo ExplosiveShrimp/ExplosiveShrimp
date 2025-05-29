@@ -12,7 +12,7 @@
 ⛧°.⋆༺♱༻⋆.°⛧
   
 
- 〃✦ ┆ [*Rentry*](https://rentry.co/cxchimi) ؛ ଓ [*Strawpage*](https://cxchimi.straw.page/)
+ 〃✦ ┆ [*Rentry*](https://rentry.co/explosive-shrimp) ؛ ଓ [*Strawpage*](https://exploshrimp.straw.page/)
 
 <img src="https://64.media.tumblr.com/888b64afd3e477727b771a98863682c6/8eb414ff821fec4d-79/s1280x1920/7c74220257d2471354b5519bb65469f8b1549396.gifv" width="600" height="350" />
 
