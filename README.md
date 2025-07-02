@@ -1,7 +1,6 @@
 <div align="center">
   
-<img src="https://64.media.tumblr.com/2f1f7eca2b79775806c7c246337d524d/5f88c68b4dc28f0a-ea/s640x960/8607df727b55232d37de456c66d995950426129d.pnj" width="350" height="350" />
-
+![image](https://github.com/user-attachments/assets/e38db929-e394-4575-a64b-f76292a4d8a3)
 
 ⛧°.⋆༺♱༻⋆.°⛧
 
