@@ -1,20 +1,6 @@
 <div align="center">
-  
-![image](https://github.com/user-attachments/assets/e38db929-e394-4575-a64b-f76292a4d8a3)
 
-⛧°.⋆༺♱༻⋆.°⛧
-
-  𝅄    ݁   ⏜ ꒰  @ 𝙇𝙞-𝘾𝙝𝙚𝙣𝙜𝙓𝙞𝙣𝙜 ᛝ ***Chimi*** ──   ๑   ֹ   ₊ㅤ  ۟
-
-  ୭ ˚. ᵎᵎ She/Her ‧₊˚ ┊ 𝗕𝗶sexual 
-
-⛧°.⋆༺♱༻⋆.°⛧
-  
-
- 〃✦ ┆ [*Rentry*](https://rentry.co/exploshrimp) ؛ ଓ [*Strawpage*](https://exploshrimp.straw.page/)
-
-
-
+ ⠀ 𓈒 𓈒 𓈒 ⠀ <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/a1a16160-87e5-4efa-bb17-48c7d22d70c2" />  ⠀ 𓈒 𓈒 𓈒 ⠀
 
 
 
