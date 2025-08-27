@@ -1,15 +1,15 @@
 <div align="center">
- 
-<img width="638" height="168" alt="image" src="https://github.com/user-attachments/assets/d3c5e00e-8c75-49cd-bf45-08f5a5e3b50a" />
 
- ⠀ 𓈒 𓈒 𓈒 ⠀ <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/e0e436a1-2bfb-41e6-bddf-2a661e3ecf51" />  ⠀ 𓈒 𓈒 𓈒 ⠀
+<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/667974a6-6b79-46ba-a6a1-c0d4d7c68cb9" />
 
- ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
+︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
-𐔌   ⠀ ⠀‿  ⠀ ⠀ *ChengXing* ! Chimi   ⠀ ⠀ ꒱
+┈・୨୧・┈ 𓊆 **ChengXing** or *Chimi* 𓊇 ┈・୨୧・┈
 
-[Rentry](https://rentry.co/exploshrimp)
- 
-<img width="638" height="247" alt="image" src="https://github.com/user-attachments/assets/6e921fc8-1822-4b81-8a7e-4cdd16b0846d" />
+୧ .. [Rentry](https://rentry.co/exploshrimp) .. ୨
 
+୨୧‿‿‿୨ﾠ୧‿‿‿୨୧ ୨୧‿‿‿୨ﾠ୧‿‿‿୨୧ ୨୧‿‿‿୨ﾠ୧‿‿‿୨୧ 
+
+
+<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/a08c125b-be70-4e56-9704-4eacc4642b18" />
 
