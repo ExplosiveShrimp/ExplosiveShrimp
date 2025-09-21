@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/667974a6-6b79-46ba-a6a1-c0d4d7c68cb9" />
+<img width="640" height="360" alt="image" src="https://64.media.tumblr.com/5379a8302aedf17070ec26e350e64859/8811aae97a79eb84-62/s1280x1920/7ea5be9858e1f73125282c98273d37480b0d0260.gifv" />
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
@@ -8,8 +8,9 @@
 
 ୧ .. [Layout](https://www.tumblr.com/kiochisato/740420576050626560/%F0%93%82%83-furina-tumblr-layouts-requested-by?source=share) .. [Rentry](https://rentry.co/exploshrimp) .. ୨
 
-୨୧‿‿‿୨ﾠ୧‿‿‿୨୧ ୨୧‿‿‿୨ﾠ୧‿‿‿୨୧ ୨୧‿‿‿୨ﾠ୧‿‿‿୨୧ 
+︶⊹︶︶⠀୨୧⠀︶︶⊹︶
+
+❝ *Now then, where are you hiding?* ❞
 
 
-<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/a08c125b-be70-4e56-9704-4eacc4642b18" />
 
