@@ -1,16 +1,11 @@
 <div align="center">
 
-<img width="640" height="360" alt="image" src="https://64.media.tumblr.com/5379a8302aedf17070ec26e350e64859/8811aae97a79eb84-62/s1280x1920/7ea5be9858e1f73125282c98273d37480b0d0260.gifv" />
+<img width="600" height="208" alt="image" src="https://github.com/user-attachments/assets/8efa5914-4ed4-4fa3-a8d1-4a5efcea5ce0" />
 
-︶⊹︶︶⠀୨୧⠀︶︶⊹︶
+　―― OO1
 
-┈・୨୧・┈ 𓊆 **ChengXing** or *Chimi* 𓊇 ┈・୨୧・┈
+❝ 𝐂𝐮𝐬 𝐈'𝐦 __𝐓𝐍𝐓__ ❞
 
-୧ .. [Layout](https://www.tumblr.com/rwbylove/781438385467375616/tericula-tumblr-layout-%E0%AB%AE-%E3%81%A5-%F0%96%A5%A6-%E1%83%90-rb-cred) .. [Rentry](https://rentry.co/exploshrimp) .. ୨
+**爆弾**  ― <ins>**Chi</ins>mi**
 
-︶⊹︶︶⠀୨୧⠀︶︶⊹︶
-
-❝ *Now then, where are you hiding?* ❞
-
-
-
+╱ *rxdshrxmp*
